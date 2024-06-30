@@ -19,7 +19,6 @@ https://github.com/SAFAIDAM/petino-v2/assets/116453067/174d2a60-76fb-494e-93ab-e
 
 #### Dream Team
 
-https://github.com/SAFAIDAM/petino-v2/assets/116453067/09177ba9-e617-4146-8039-09df173e2529
 
 
 
